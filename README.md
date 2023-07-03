@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hay-gwc
+- 👀 I’m interested in erp and website
+- 🌱 I’m currently learning.
+- 💞️ I’m looking to collaborate on an erp for real estate and development 
+- 📫 How to reach me; I am completely new and a virgin in this field. i am taking help from chatgpt to make a erp for my firm. teach me the basics and then more advance things. 
